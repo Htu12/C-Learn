@@ -1,1 +1,1 @@
-##Exercise on luyencode.net | current VT16
+##Exercise on luyencode.net | current SUM3
